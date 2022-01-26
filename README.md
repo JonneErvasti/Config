@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @JonneErvasti
 - 🌱 Currently a Hive helsinki (a 42 school) student.
-- 📫 Some more info updated later when the studies advance.
